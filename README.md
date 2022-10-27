@@ -1,0 +1,2 @@
+# -BB_W-F-_LOCAT-ON
+İBB_WİFİ_LOCATİON
